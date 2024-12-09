@@ -1,4 +1,4 @@
-# [George Lao](georgelaozi.com)
+# I AM
 
 - 📫 Real name: George Adekunle Obafemi
   
